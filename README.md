@@ -1,4 +1,4 @@
-# Meoooww
+# Meoooww, know more about me ig ? 
 
 Hihihihi, first of all, the name is Haru/shu call me whatever you want seriously
 , So I have rules of my own if you want to talk / be friends so:
