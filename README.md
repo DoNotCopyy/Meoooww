@@ -6,7 +6,8 @@ I have rules of my own if you want to talk / be friends so:
 2. Respect my boundaries !! I don't like heavy flirting / sexulaizing, it isn't my thing and I will srsly not vibe with you babes <3 + Minor !! unless ya wanna be a pedophile 
 3. 2. Ships / rps dni!! (I will bully you.)
 4. 3. Don't be 'quirky' around me / full of yourself, I srsly will not like talking to you 
-  5.don't vent/mention problems to me I deal with my own, thank you <3 (unless close friends that I ALLOW to talk to me) 
+
+ 5.don't vent/mention problems to me I deal with my own, thank you <3 (unless close friends that I ALLOW to talk to me) 
 
 topics / fandoms I'm interested in :
 HH / Hb (coughing on this one I hate how badly written they are but I'm there for the chaos / eve, lilith, and mammon ngl) 
@@ -22,10 +23,15 @@ vocaloid (meooow)
 hoping to get into fear & hunger (??) 
 
 Artists I love : 
+
 Divide the day (listen to them, they're fucking cool) 
+
 Will wood 
+
 Mindless self indulgence 
+
 Weyes blood 
+
 the orion experience  
 
 toodle-oo !!!! 
